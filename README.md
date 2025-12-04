@@ -1,0 +1,1 @@
+# medicall-sertificate.ssv.uz
